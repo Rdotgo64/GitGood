@@ -12,3 +12,12 @@ CHAPTER TWO
 The Zombies have reached the city center  
 
 i need to find a safe palce 
+
+
+## CHAPTER 3 - SURVIVOR RESCUE
+
+I discovered a group of survivors hiding inside an abandoned school.
+
+We decided to work together.
+
+Our mission is to rescue more people and find a permanent safe zone.
