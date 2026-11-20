@@ -6,3 +6,9 @@ it was a normail day in captown.
 i grabbed my laptop and ran as first as could 
 
 TO BE CONTINUED 
+
+CHAPTER TWO 
+
+The Zombies have reached the city center  
+
+i need to find a safe palce 
